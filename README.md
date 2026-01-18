@@ -65,6 +65,6 @@ I am a passionate learner diving deep into the world of technology — from cybe
 ---
 
 ## 📬 Contact Me
-📧 **Email:** sample@gmail.com  
+📧 **Email:** sarthak.rathore30@gmail.com  
 
 ---
